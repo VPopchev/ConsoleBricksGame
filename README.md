@@ -2,5 +2,5 @@
 Definitely unfinished console game
 Hoes , Hoes everywhere...
 I Fix The Conflict... :P
-New Conflict GitBash
-Shitssss...
+Shit Happens all the time
+Then i fix the shits
